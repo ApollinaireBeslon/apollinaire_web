@@ -1,0 +1,28 @@
+h1 {
+    color: black;
+}
+
+body {
+    font: 1em serif;
+}
+
+body::before {
+    background: inherit;
+}
+
+.bg-primary {
+    background-color: grey !important;
+    background-image: inherit;
+}
+
+body {
+    color: #2e3032;
+}
+
+a {
+    color: gray;
+}
+
+p {
+    margin-bottom: 0rem;
+}
