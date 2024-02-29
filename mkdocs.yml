@@ -8,4 +8,9 @@ nav:
     - "povidky.md"
 
 theme:
-  name: readthedocs
+  name: mkdocs
+
+
+extra_css:
+  - style.css
+
