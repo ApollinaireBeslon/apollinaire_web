@@ -1,22 +1,37 @@
+@import url('https://fonts.googleapis.com/css2?family=Libre+Baskerville:ital,wght@0,400;0,700;1,400&display=swap');
+
+* {
+    font-family: "Libre Baskerville", serif;
+    font-weight: 400;
+    font-style: normal;
+}
+
 h1 {
     color: black;
 }
 
 body {
-    font: 1em serif;
+    font: 1em sans-serif;
+    color: #000000;
+    background-image: url("assets/pergamen.jpg");
+    background-repeat: repeat;
+
 }
 
-body::before {
-    background: inherit;
+
+
+h1, h2, h3, h4, h5, h6, .h1, .h2, .h3, .h4, .h5, .h6 { 
+    color: #000000;
 }
+body::before {
+    background: none;
+} 
 
 .bg-primary {
     background-color: grey !important;
-    background-image: inherit;
 }
-
-body {
-    color: #2e3032;
+.navbar{
+background-image: none;
 }
 
 a {
@@ -25,4 +40,5 @@ a {
 
 p {
     margin-bottom: 0rem;
+    line-height: 1.8;
 }
