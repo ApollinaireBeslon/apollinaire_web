@@ -9,7 +9,8 @@ nav:
 
 theme:
   name: mkdocs
-
+  analytics:
+    gtag: G-C1V59CKJPF
 
 extra_css:
   - style.css

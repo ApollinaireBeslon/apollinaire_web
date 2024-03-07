@@ -3,17 +3,16 @@
 ## Básně
 
 * [Pírka](/pirka)
-* francouzské kaligramy
+* [francouzské kaligramy](/kaligramy)
 
 ## Próza
 
-* Nedokončené povídky (nedokončeno)
+* [Povídky zpod plynových lamp](/povidky)
 
 
----
-
+<!-- 
 * `mkdocs gh-deploy` - Nasadit na server.
 * `mkdocs new [dir-name]` - Create a new project.
 * `mkdocs serve` - Start the live-reloading docs server.
 * `mkdocs build` - Build the documentation site.
-* `mkdocs -h` - Print help message and exit.
+* `mkdocs -h` - Print help message and exit. -->
