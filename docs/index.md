@@ -2,12 +2,12 @@
 
 ## Básně
 
-* [Pírka](/pirka)
-* [francouzské kaligramy](/kaligramy)
+* [Pírka](pirka)
+* [francouzské kaligramy](kaligramy)
 
 ## Próza
-
-* [Povídky zpod plynových lamp](/povidky)
+* [kaišaku](kaisaku)
+* [Povídky zpod plynových lamp](povidky)
 
 
 <!-- 
