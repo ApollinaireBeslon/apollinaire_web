@@ -2,7 +2,7 @@
 <br>
 <br>
 
-## Poseldní haiku 
+## Poslední haiku 
 
 Seděl na rohoži hned po levici Šōguna. S chladnou tváří si prohlížel nově příchozí. Tak tohle byl onen daimjō, jehož se Šōgun tolik obával? Ne, starý Hikone Rokuemon, Daimjō a pán provincie Hikone, se mu nezdál jako člověk, který by kul pikle proti šōgunátu. Byl mocný, to ano, ale vypadal jako dobrý člověk. Tak tomuhle starci a jeho družině bude dnes večer dělat společnost? Nu, alespoň nějaké povyražení se najde v těchto deštivých časech…
 

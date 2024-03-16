@@ -1032,6 +1032,66 @@ Zvony, spousta zvonů právě začala odbíjet. Bim, Bam, Bim, Bam, Bim, Bam, Bi
 „Hodně štěstí do života, pane komisaři. Snad se ještě někdy setkáme…“
  <br>
  <br>
+ 
+ 
+ 
+## Majdalénko
+<br>
+<br>
+
+Stál tam, pod lampou, jako obvykle. Čekal. Jako puma krčící se v průsmyku, jako šelma číhající na kořist, i on čekal. Ale on čekal na světle. Na tom jediném ostrůvku světla v tom temném podzimním večeru. Jako šelma, jako krokodýl, který čeká na neopatrnou gazelu, až skloní hlavu k vodě, aby se napila…
+
+Dneska to byl nějakej chlap, kterej si příliš otvíral hubu, zítra to bude možná nějakej mladík, kterej se chtěl trhnout a nebo nějaká děvka, co toho věděla přespříliš. Kšeft je kšeft, není to nic osobního. Hlavně beze svědků…
+
+Konečně je uviděl. Dvě postavy se pomalu blížily tou potemnělou ulicí. Musel to být on, už ho přece pár dní sledoval, znal ten šouravý způsob, jakým chodil. Začal si prohrabovat kapsy. Tohle divadýlko hrál už snad stokrát.
+
+„Promiňte pane, ale nepřipálil byste mi?“
+
+Stařík se vyplašeně rozhlédl. Všiml si ho až po chvíli. 
+
+„Ale… Ale jistě…“ Odpověděl ještě trochu poděšeným hlasem, i když bylo zřejmé, že se už začínal uklidňovat. Přistoupil k němu a vytáhl zapalovač.
+
+Následoval klasický scénář. Přijde blíž, zapálí a dlouhá čepel mu zajede do břicha. Jako obvykle. Tohle dělal už snad stokrát…
+
+Otřel nůž do kapesníku, když tu mu zrak padl na tu druhou osobu. Jak to, že si jí všiml až teď?
+
+„Nic osobního…“ Zachroptěl. „Žádní svědci…“
+
+Zarazil se. Sice už si všiml, že na sobě měla sukni, ale až teď mu došlo, že je nějaká outlá. Než si to stačil všechno sesumírovat v hlavě, dala se na útěk. Zatraceně! Má dobrejch deset metrů náskok! Daleko neuteče, běží do slepý uličky…
+
+Stál tam, temná silueta proti zlatému světlu lampy, a uzavíral jediný východ z té úzké pasti končící zdí. Viděl ji, malou, skrčenou siluetu pokoušející se zmizet v rohu. Neunikne…
+
+Náhle se mraky rozevřely a celou uličku zalilo stříbrné měsíční světlo. Byť to bylo na pouhý okamžik, dokázal se tento obraz otisknout do jeho paměti na celý zbytek jeho mizerného života. 
+
+Krčila se tam, malá, ani ne patnáctiletá dívka, ale v jeho očích to byla stále holčička. Byla úplně tårn, sledovala jeho temnou siluetu a přitom se mu zdálo, jako by se dívala kamsi za něj. Odevzdaně na ni čekala, na tu vysokou, černě oděnou postavu, která ho doprovázela už od začátku jeho kariéry. Tohle už zažil snad stokrát, ale ještě nikdy nepotkal nikoho, kdo by se tolik podobal jí. Vždyť to kvůli ní to celé dělal! Vždyť jediné, o co mu šlo, bylo její dobro! Ach, kdyby jen tušila! Nebyla by na něj hrdá, vlaštovička jeho! Byla by ho zapřela, za všechna ta zvěrstva, která napáchal… Ne, tohle si už říkal snad stokrát. Dělá to kvůli ní. Hlavně beze svědků, beze stop…
+
+Její vzlyky oblomily jeho srdce a definitivně rozhodly jeho vnitřní boj. Přiklekl k ní a nabídl jí kapesník. Netušil, co říct, už tak dlouho nemluvil s nikým jejího věku! Bože, jak je to dlouho, co ji viděl naposledy?
+
+„Víš...“ Začal nejistě. „Nic jsem proti tvýmu otci neměl, ale kšeft je kšeft, víš? To bys mohla pochopit, vypadáš jako vnímavá holka…“
+
+Utichla. Vrhla na něj uslzený pohled a vzala si kapesník, který jí stále ještě podával. Poté, co se vysmrkala a utřela si slzy, se zajíkavým hlasem zeptala: 
+
+„P-proč jste h-ho zabil?“ 
+
+„Protože i já mám někoho, koho miluju. Koho musím chránit. Tak jako on určitě miloval a chránil tebe, promiň…“
+
+Děsilo ho to. Připomínala ji každým coulem svého těla, každým aspektem chování, dokonce i tím slabým hláskem se jí podobala. Nebylo to o tom, že by musel zabít nevinnou holku, dělal už mnohem horší věci, ale tohle… Bylo to pro něj, jako kdyby o ní měl znova přijít, ale tentokrát by jí musel zabít, a ještě k tomu to musel být zrovna on! Jaký to paradox, celou dobu vraždí jenom proto, aby ji chránil, a teď ji musel zabít…
+
+„Jakpak se menuješ, děvenko?“
+
+„M - Magdalena…“
+
+„Pěkné jméno… Poslyš, Majdalénko, já teď odejdu, a ty, ani kdyby ti vyhrožovali, nesmíš nikdy nikomu říct o tom, co se tady dnes večer přihodilo, ano? A taky o mně nikomu ani muk, jasné? Dobrá, já teď odejdu a už mě nikdá v životě neuvidíš, a já už nikdá v životě neuvidím tebe… Ale musíš mi slíbit to, o co jsem tě žádal, ju?“
+
+Váhavě přikývla. Usmál se na ni, i když to vypadalo spíš jako škleb, a vylovil odněkud z kapsy balíček sušenek, ze kterého jí jednu nabídl. Vzala si ji a podezřele si ji prohlížela. 
+
+„Mandlová…“ Zašklebil se na ni „Chutná?“ Zeptal se, když se do ní zakousla. 
+
+Svezla se po zdi a ležela na zemi. Oči, zarudlé od pláče, potemněly. Soucitně se na ni díval. 
+
+„Beze svědků…“ zašeptal nakonec. Vstal a zmizel kdesi v temných uličkách…
+
+
 
 ## Mlhavé vzpomínky
  <br>
