@@ -1034,7 +1034,133 @@ Zvony, spousta zvonů právě začala odbíjet. Bim, Bam, Bim, Bam, Bim, Bam, Bi
  <br>
  
  
+
+
+
+## Orgasmy
+<br>
+<br>
+Letěl ze svahu jako střela. Necítil strach, skoro nedýchal. Jeho lyže se odlepily od země, již nejel, letěl. Myslel na Zirael, Vlaštovku, jak se vynořuje z mlhy na zamrzlém jezeře a přináší náhlou smrt. 
+
+On nebruslil, on letěl. Necítil bolest ani chlad, on byl Rychlost, on byl Smrt!
+
+Švihl hůlkou jako mečem, tal jako kat. Jak husar řítící se na turka na poli před Vídní. Nepobízel koně, prohýbal kolena a ani na to nemyslel.
+
+A najednou to skončilo. Stál pod vlekem, lyže se mu bořily do té hnusně šedé břečky, kterou kdosi nazval sněhem. Nasedl na kotvu a začal si uvědomovat strašnou bolest v nohách. Pokusil se si za jízdy uvolnit přezky na botách a rozplácl se na mokrém sněhu, mezitím co upíral pohled na prázdnou kotvu 
+mizící v nedohlednu.
+<br>
+
+*
+
+<br>
+Pomalu kráčel tou noční tmou, místy prozářené zlatavým světlem pouličních lamp. Lehce zatáhl za vodítko a pobídl psa, aby šel dál. Byl chladný podzimní večer a on z plných plyc dýchal čistý ledový vzduch. Přemýšlel o povídce, jejíž osnovu měl sotva lehce načrtnutou. 
+
+Teď se mu před očima vykreslovaly detaily a narážky na jiná jeho díla. Mohl by ji provázat se Stínovesmírem, mohl by do ní přidat perlu a nebo toho vraha, o kterém tuhle psal. Ne, vraha ne. Perlu možná, ale to by dějově nesedělo. Ale i tak, ten nápad je originální. Tentokrát už nikdo neřekne, že veškeré jeho povídky mají děj zhruba stejný, který se dá vyjádřit slovy: Ahoj, jsem postava. Trpím. Hele, krev.
+
+A najednou otočil klikou a stál v dusném, teplém bytě. Odvázal psa a sundal si svůj dlouhý kabát. Pokusil se zhlboka nadechnout, ale nebylo moc čeho. Takhle to bylo vždycky. Sedl si ke stroji a zase nic nenapsal. 
+<br>
+
+*
+
+<br>
+Jel tryskem po poli. Přeskakoval strouhy a příkopy, byl vysokou nad vysokou trávou. Po zemi se míhaly čtyři bíle nohy, ale ty on neviděl. Díval se před sebe, pobízeje koně do slabin. Podkovy zvonily na štěrkové cestě, duněly zelenou trávou a šplíchaly se brodem. 
+
+Myslel na královu řeč. Myslel na zvuk rohů a dunění kopyt. Jeďte! Jeďte jezdci Theodenovi. Jeďte do zkázy a plamene a do skonání světa! Jeďte k Minas Tirith!
+
+Jezdec a kůň, muž a zvíře. Jeden bez druhého jsou ničím, ale spolu jsou druhové smrti.
+
+Najednou stál na zemi před stájí a sundával sedlo z upoceného Goliášova hřbetu. Nasypal mu zrní do kyblíku a začal hřebelcovat jeho schvácené tělo. Ted tu bude ještě hodinu mrznout, na tomhle 
+
+mrazivém strništi. Konečky prstů ho začaly pálit chladem, vítr mu profukoval přes tenké jezdecké kalhoty. A ještě k tomu začalo pršet. 
+<br>
+
+*
+
+<br>
+Pomalu natáhl ruku a pohnul dámou. Na rty se mu drala slova “šach mat”, čekal na napřaženou ruku. Tohle bylo poprvé. Prohrával, to ano, ale jakmile soupeř přehlédl toho pěšce. Ano, sice se mu povedla trojitá vidlička, sice při výměně věží ztratil o jednoho koně víc, ale tohle byl vskutku brillantí tah.
+
+Jeho protivník zakašlal. Zvedl hlavu a uviděl v jeho očích nevyřčenou otázku. Jakoby chtěl, aby táhnul. 
+
+S hrůzou se podíval na šachovnici. Na bílém poli, na kterém se předtím tak krásně vyjímala jeho bílá dáma, škodolibě a vítězoslavně stál černý střelec. 
+<br>
+
+*
+
+<br>
+Běžel. Ne, neběžel, letěl. Nesl se dlouhými skoky napříč rozkvetlou loukou. Do nosu ho bila vůně květin, vlasy mu vlály. Na žlutou polokošili si i přes rychlost, jakou běžel, sedaly berušky. Vzpomněl si na Geraltovo setkání se Smrtí. Tohle bylo jiné. Neumíral, žil. Žil a běže, jak Apollón, zlatý hnal se po zeleném nebi posetém hvězdami z pampelišek. 
+
+Vzpomněl si na Cida, jak po urážce svého otce běžel a zabil otce své milé. Spěš nás pomstíti, pravil mu jeho starý otec. Jdi, běž, let! 
+
+A najednou ležel na zemi, do zrudlé tváře ho tlačil štěrk. Nevěděl, jak se to stalo, ale při pádu si stačil rozbít koleno. To teď ošklivě krvácelo a bolelo jako čert. Pomalu se zvedl a šel si to umýt k průzračnému potůčku. Dalšího dne ráno rána dosti hnisala.
+<br>
+
+*
+
+<br>
+Jeho prsty bušily do kláves na kterých se černě rýsovala malá tiskací písmena. Psal. Psal o plané lásce, psal o kráse života a o kráse smrti. Psal nadčasově o utrpení láskou způsobeném. Jeho prsty se míhaly 
+po klávesnici jako prsty klavíristovy hrající Fantasii impromptu. 
+
+Ne, to nepsal on. On to jenom sepisoval. Tento příběh už byl vymyšlen, on jej jenom zapisoval. Jasně se mu odvíjel před očima, hrubý, ale stejně krásný. Jak surový granát, jehož byl brusičem. To on dopisoval detaily, to on celý příběh formuloval lidskou řečí. 
+
+A najednou se přistihl, že už jenom opravuje chyby. Před chvílí dopsal poslední odstavec, vysvětlil poslední nesrovnalost. Ano, bylo to dobré, dosti dobré, dle jeho názoru. Ale už to skončilo, příběh byl dovyprávěn a teď byl jenom zpětně opravován. Zhasl a šel spát. Všechna krása vyprchala s posledním úderem mezerníku.
+<br>
+
+*
+
+<br>
+Vzhůru, stále vzhůru k nebesům, až na vrchol. Stoupal po příkré lesní pěšině. Dnes to zvládne, dnes pokoří tisíciletý horský štít, dnes dosáhne vrcholu. Nebylo to, že by chtěl překonat ostatní, nebylo to, že by si potřeboval něco dokazovat, ale dostal výzvu. Samo pohoří jej vyzvalo: Pojď, pojď a postav se mým ledovcovým drakům a mým strmým kamenným zdem! Vyzývám tě při všem, co je ti svaté, jdi a pokus se mne pokořit. Nemáš šanci, ale můžeš se o to pokusit. 
+
+Vyšel z lesa. Stál na vysokém horském hřebeni, stál nejvýš, kdy byl. A před ním se stále tyčila nejvyšší hora Evropy. Vítězoslavně se před ním tyčil bílý štít Mont Blancu. 
+<br>
+
+*
+
+<br>
+Převracel ten lesklý kousek kovu v prstech sem a tam. Seděl pod oknem ve třetím patře, od lesklého nápisu „Astra” vyrytém na žiletce, se odrážely poslední paprsky dne. Posledního dne, blesklo mu hlavou. Jak sladké bylo pomyšlení, že zítra už nebude. Nebude myslet, nebude dýchat a nebude mluvit. Neusne navěky, prostě zemře. Ano, proč si to zatajovat, můj milý samovrahu, zemřeš, řekl si. 
+Zkusmo si ten chladný kousek kovu přiložil k tepně.  Ucítil zvláštní chlad, mráz mu přeběhl po zádech. Konečně. 
+
+Schoval žiletku zpátky do kapsy. Ne, k čemu by to bylo? Možná jindy, ne dnes. Ale příště to už opravdu udělá, nemůže to stále donekonečna odkládat…
+<br>
+
+*
+
+<br>
+Ukrojil další sousto a vložil si jej do úst. Po jazyku se mu rozlila chut krve smíchané s krupicí. Ach, jak tyto okamžiky miloval! Nebylo pro něj nic cennějšího než maso, dobré maso z dobře živeného zvířete. Nemohl si pomoct, miloval jídlo. Ještě chvíli si převaloval zbytyk jelita na jazyku a poté polkl. 
+
+Naplnil jej pocit plnosti, pocit zadostiučinění. Na tohle jídlo čekal celý měsíc, musí si ho pořádně vychutnat, do posledního sousta. 
+
+Vidlička, která se napřahovala pro další sousto, cinkla o prázdný talíř. S hrůzou si uvědomil, že je konec. Mastný talíř byl prázdný.  
+<br>
+
+*
+
+<br>
+Napjal všechny svaly v těle. Ne, jako jindy, ne jako při jiných sportech, ve vodě jeho tělo pracovalo úplně jinak. 
+
+Ano, jeho neohrabané, bledé tělo se ve vodě proměnilo v lesklé a ladné tělo delfína hrajícího si tak jako on ve vlnách. Občas ho sice štípla sůl do nosu, ale zde byl ve svém živlu. Sžil se s oceánem, a oceán se sžil s ním. Plaval, ladně švihal rukama při kraulu a nedbal toho, že ted na podzim už je voda dosti studená. Tohle bylo moře, on byl ryba. Obrovská síla vodních mas, kterou pohyboval měsíc spolu s větrem proti malému, bledému tělíčku nebohého človíčka. Vyhrával človíček. 
+
+Moře se s ním pokoušelo trochu pohrát, ale pohrával si on s ním. Předvídal každý jeho krok, přeplavával vrcholky vysokých vln. 
+
+A najednou stál na pláži a utíral se ručníkem. Byl opět na suché zemi, vlny byly moc velké. Celý prokřehlý a s namodralými rty se vracel smutně domů. Právě pro něj skončilo léto.
+<br>
+
+*
+
+<br>
+Seděl na lavičce, na krk si tiskl chladný břit břitvy. Vůbec mu neproběhl celý život před očima, tedy alespoň si to myslel. Adamovi Bílému prolétly hlavou jenom vzpomínky na okamžiky, kdy opravdu žil. Kdy pomalu neumíral na tu smrtelnou nemoc zvanou život, ale kdy opravdu žil. Tento petřil mezi ně. 
+
+Necítil to jako tehdy, před lety. Dnes k tomu měl důvod, vážný důvod. Seděl na té zasněžené lavičce pod nejstarším stromem na Kampě a pozoroval zlatě rozkvetlou alej lamp. Byla to úleva.  
+
+Ano, byla to úleva, když u horká krev zalévala krk a on cítil ten nádherný chlad přicházející smrti. 
+Konečně, konečně to udělal a konečně to cítil. Ze země viděl, jak se k němu nehlučně, pomalu a aniž by za sebou zanechávala jedinou stopu blíží temná postava. Konečně jej potkává. 
+
+KONEČNĚ SE POTKÁVÁME…Řekl Smrt. 
+
+A najednou to bylo pryč.
+
  
+
+
 ## Majdalénko
 <br>
 <br>
