@@ -1129,9 +1129,7 @@ Ukrojil další sousto a vložil si jej do úst. Po jazyku se mu rozlila chut kr
 
 Naplnil jej pocit plnosti, pocit zadostiučinění. Na tohle jídlo čekal celý měsíc, musí si ho pořádně vychutnat, do posledního sousta. 
 
-Vidlička, která se napřahovala pro další sousto, cinkla o prázdný talíř. S hrůzou si uvědomil, že je konec. Mastný talíř byl prázdný.  
-<br>
-
+Vidlička, která se napřahovala pro další sousto, cinkla o prázdný talíř. S hrůzou si uvědomil, že je konec. Mastný talíř byl prázdný.<br>
 *
 
 <br>
@@ -1157,8 +1155,8 @@ Konečně, konečně to udělal a konečně to cítil. Ze země viděl, jak se k
 KONEČNĚ SE POTKÁVÁME…Řekl Smrt. 
 
 A najednou to bylo pryč.
-
- 
+<br>
+<br>
 
 
 ## Majdalénko
@@ -1216,7 +1214,8 @@ Váhavě přikývla. Usmál se na ni, i když to vypadalo spíš jako škleb, a 
 Svezla se po zdi a ležela na zemi. Oči, zarudlé od pláče, potemněly. Soucitně se na ni díval. 
 
 „Beze svědků…“ zašeptal nakonec. Vstal a zmizel kdesi v temných uličkách…
-
+<br>
+<br>
 
 
 ## Mlhavé vzpomínky
