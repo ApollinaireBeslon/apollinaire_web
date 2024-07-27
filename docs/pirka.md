@@ -5,12 +5,10 @@
 ##  Krkavčí slova
 <br>
 <br>
-<br>
 Zkormoucen kráčíš Prahou zavátou<br>
 Slzy tě pálí, mrznou ti na tvářích,<br>
 Už je tma, vždyť táhne na devátou<br>
 Znamení smrti viděl jsi ve dveřích<br>
-<br>
 <br>
 Dnes prve zjistil jsi<br>
 Že slova ranit dokážou<br>
@@ -25,7 +23,6 @@ Zranils toho, kdo byl ti drahý<br>
 Teď smuten jsi volky nevolky<br>
 Tvé výčitky jsou tvými vrahy<br>
 <br>
-<br>
 Avšak ty nemáš právo mřít<br>
 Musíš dál trpět musíš dál žít<br>
 Nemáš právo naději mít<br>
@@ -34,7 +31,6 @@ Musíš tu stát a musíš zřít<br>
 Že dál už nejde jít<br>
 Že naděj je zmařena<br>
 Z poháru strasti že musíš pít<br>
-<br>
 <br>
 Tak tu stojíš<br>
 V té noci mrazivé<br>
@@ -48,7 +44,6 @@ Všechny viní tě<br>
 Všechny ti uši rvou<br>
 Tisíce očí vidí tě<br>
 A ty hlasy na tě řvou<br>
-<br>
 <br>
 Tu jeden slét<br>
 Z koruny stromu<br>
@@ -64,7 +59,6 @@ Přec ranila mne velice<br>
 Ač nebyla kopím ni mečem<br>
 Ranila mne ze všech nejvíce<br>
 <br>
-<br>
 Proč slova váží mnohem víc nežli činy?<br>
 Proč slova jsou brána s takou vahou?<br>
 Proč k sobě mluvíme, když jsme každý jiný?<br>
@@ -76,7 +70,6 @@ To vše a více po jeho slovech jsem pochopil<br>
 ## Volavko šedá!
 <br>
 <br>
-<br>
 Stojí v potoce<br>
 Na svých dlouhých nohách<br>
 Rmoutí mne velice<br>
@@ -85,7 +78,6 @@ Ach volavko! Volavko šedá!<br>
 Peří máš jak popel šedivé<br>
 Připomínáš mi můj žal ach běda!<br>
 Tvá ješitnost jen sype sůl do rány svědivé<br>
-<br>
 <br>
 Kdybych tě teď kopím proklál<br>
 Asi trpěla bys míň než ona<br>
@@ -100,7 +92,6 @@ Co jí mám říct? Co dělat běda?<br>
 Ach volavko vítr se zvedá!<br>
 Kam potáhne tvá silueta bledá?<br>
 <br>
-<br>
 Nejradši bych s tebou vzduchem plul<br>
 Ne jako pták<br>
 Spíš jako drak<br>
@@ -109,7 +100,6 @@ Proto nepoletím s tebou<br>
 Volavko šedá<br>
 Byl bych sám sebou<br>
 Ach běda mi běda<br>
-<br>
 <br>
 Jsem jako monstrum, mám se za netvora<br>
 Vždyť zranil jsem drahého tvora<br>
@@ -121,7 +111,6 @@ Tyhle rány se nezcelí, vždyť stalo se to včera<br>
 ## Páv
 <br>
 <br>
-<br>
 V létě jsem viděl<br>
 Páva v Sadech Vojanových<br>
 Jak jsem už děl<br>
@@ -130,7 +119,6 @@ Ten páv se natřásal<br>
 A snažil se zahnat lidi<br>
 Ocasem zamával<br>
 Zvedly se oči co vše vidí<br>
-<br>
 <br>
 Ach páve, páve stačí jedna rána<br>
 A tvá hlava padne<br>
@@ -141,7 +129,6 @@ Proč všechny děsíš?<br>
 Proč všechny podvádíš?<br>
 Ač krásný přec sílu si vymýšlíš<br>
 <br>
-<br>
 Páve, nechtěj nás zastrašit<br>
 Vzhledem a mluvou těla<br>
 Jen slova můžou vystrašit<br>
@@ -151,12 +138,10 @@ Meč má jen jeden hrot<br>
 Zato slova často zrazují<br>
 A oplácí ti ten tvůj bod<br>
 <br>
-<br>
 Tehdy jsem pírko sebral<br>
 A v peněžence jej mince obdivují<br>
 Tehdy jsem nechápal<br>
 Že slova hůř než ocel zraňují<br>
-<br>
 <br>
 Dnes vracel jsem se sněhem domů<br>
 Ocelí zraněn, slovy rozpolcen<br>
@@ -172,18 +157,15 @@ Tehdy jsem si svou chybu připomněl
 ## Pírko zkrvavené
 <br>
 <br>
-<br>
 Viděl jsi jezero vypuštěné<br>
 Labutě táhly zase pryč<br>
 Našel jsi pírko zkrvavené<br>
 Od pírka krev jezerem napříč<br>
 <br>
-<br>
 Tu uviděl jsi na druhém břehu<br>
 Umírat labuť zkrvácenou<br>
 Dal jsi se do běhu<br>
 Uzřel jsi duši Smrtí uchvácenou<br>
-<br>
 <br>
 V ruce jsi pírko držel<br>
 Hněval ses na toho kdo ji zabil<br>
@@ -193,7 +175,6 @@ Pohlédls na pírko zkrvavené<br>
 Pohlížels naň jak na ortel smrti<br>
 Ač panenský bílé, bylo krví červené<br>
 Padls na kolena v kamenné drti<br>
-<br>
 <br>
 Když tak přemýšlíš<br>
 Číms jí asi zabil<br>
@@ -208,12 +189,10 @@ Zabilo jí slovo tvoje<br>
 Horší srmt, než když gilotina tne<br>
 A je to vina tvoje<br>
 <br>
-<br>
 Ach pírko! Pírko strastí!<br>
 Ach pírko! Pírko krví zbarvené!<br>
 Ach pírko! Pírko bolesti!<br>
 Mé tělo je jako duše zbavené!<br>
-<br>
 <br>
 Má duše jak by plula nad tím jezerem!<br>
 A i když je zima tak plá jasným plamenem!<br>
@@ -223,7 +202,6 @@ Ach proč, pírko krhavé, proč tu spolu zahynem?!
 <br>
 <br>
 ## Bažant
-<br>
 <br>
 <br>
 Když jsi pozoroval<br>
@@ -239,7 +217,6 @@ na celé kolo<br>
 Aby varoval<br>
 Své druhy okolo
 <br>
-<br>
 Ach slova a zvuky<br>
 Jsou tak poplašné<br>
 Kdykoliv něco řekneš<br>
@@ -252,7 +229,6 @@ Slova se vytrácejí<br>
 Špatná a ošklivá však zůstanou<br>
 A dobrá se ztrácejí<br>
 Zlá stanou se tvou pohanou<br>
-<br>
 <br>
 Ach slova, jak jsem již děl<br>
 Jsou ostřejší než meče<br>
@@ -268,7 +244,6 @@ A dobrým berou jejich kouzlo<br>
 Otec proklíná v závěti<br>
 Syna co jemu protiřečil<br>
 <br>
-<br>
 Ale slova nejsou jenom  zlá<br>
 Některá naděj přinášejí<br>
 Jsou jak světlo, co v temnotě plá<br>
@@ -281,7 +256,6 @@ A to je úplně jiné<br>
 <br>
 <br>
 ## Kachna
-<br>
 <br>
 <br>
 Viděl jsi kachnu zmrzačenou<br>
@@ -297,7 +271,6 @@ Opici v kotci zavřenou<br>
 Mola k lapce přilepeného<br>
 Myšku v pasti přivřenou<br>
 <br>
-<br>
 Ach proč lidé jsou takovými vrahy?<br>
 Proč chovají se jak lítá zvěř?<br>
 Proč není člověk člověku drahý?<br>
@@ -308,12 +281,10 @@ Proč nikdo nezastaví tu řež?<br>
 ## Káně
 <br>
 <br>
-<br>
 Viděl jsi káně jak krouží oblohou<br>
 Létá v těch oblačných oparech<br>
 Vrhá se střemhlav na kořist ubohou<br>
 Myšku šedou drtí ve spárech<br>
-<br>
 <br>
 My lidé jsme jak draví ptáci<br>
 Střemhlav se vrháme<br>
@@ -337,7 +308,6 @@ Ničíme života vlásky<br>
 ## Kormorán
 <br>
 <br>
-<br>
 Jednoho rána<br>
 Po noci probdělé<br>
 Viděl jsi kormorána<br>
@@ -346,7 +316,6 @@ Snažil se ho zbavit<br>
 Nohou ho strhnout<br>
 Nepřestával lidi bavit<br>
 Hlavu si moh utrhnout<br>
-<br>
 <br>
 Viděl jsi mrtvého holuba<br>
 Zabil se o sklo<br>
